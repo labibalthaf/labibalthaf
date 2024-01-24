@@ -3,9 +3,9 @@
 
 - 🌱 I’m currently learning **C, HTML, CSS, Javascript**
 
-- 📫 How to reach me **labibalthaf177@gmail.com**
+- 📫 How to reach me **labibalthaf177@gmail.com & https://www.instagram.com/**
 
-- ⚡ Fun fact **Feeling Dizzy**
+- ⚡ Fun fact **Feeling Dizzy Right Now**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
