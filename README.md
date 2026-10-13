@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **C, HTML, CSS, Javascript**
 
-- 📫 How to reach me **labibalthaf177@gmail.com & https://www.instagram.com/**
+- 📫 How to reach me **labibalthaf177@gmail.com & https://www.instagram.com/labibalthaf14**
 
 - ⚡ Fun fact **Feeling Dizzy Right Now**
 
